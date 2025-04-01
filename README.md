@@ -1,1 +1,0 @@
-# Asipitatheanalyst.github.io
